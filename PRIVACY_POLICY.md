@@ -59,7 +59,7 @@ Information about children is provided voluntarily by parents only.
 
 ### Contact
 
-email@email.com
+birliktebuyut@gmail.com
 
 
 ---
@@ -119,4 +119,4 @@ Hesap silindiğinde:
 
 ### İletişim
 
-email@email.com
+birliktebuyut@gmail.com
